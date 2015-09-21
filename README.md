@@ -1,2 +1,7 @@
 # Hello-World
-Just follow the guide
+Hi HUMAN!
+ Today is a new start.
+ Meeting the crossroad in my life.
+ Stop to think ,just to do.
+REMEMBER!
+
